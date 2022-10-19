@@ -9,4 +9,4 @@ to
 lines
 in
 the 
-minimum
+THE MITOCONDRIA IS THE POWERHOUSE OF THE CELL
